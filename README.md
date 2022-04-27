@@ -1,1 +1,3 @@
-# LAB01_GRUPO_B_20213147_NATALIE_LAZO
+# LABORATORIO 01
+https://iconape.com/unsa-arequipa-peru-logo-logo-icon-svg-png.html
+
